@@ -16,6 +16,9 @@
 
 ## info 
 Skype: igoshapi 
+
 Whatsapp: +79100134790
+
 Name: Игорь
+
 Site: [Tizzi.ru](https://www.tizzi.ru/)
